@@ -28,10 +28,11 @@ Ish has been an invaluable asset to our team, and his presence will be greatly m
 
 ## Tara Smith - Associate
 I am the Events Lead on the Frontline Digitisation Support Offer programme and Ish has supported me in the Events workstream during his internship. His responsibilities included:
-Leveraged his skills in photoshop and utilised his creativity to create a series of banners for each workstream. He produced high-quality graphics, which has enhanced our visual communication and branding efforts.
-Ishwinder developed his expertise in Google Slides. He effectively applied this skill to draft the events pipeline slide, showcasing his growing understanding of our events pipeline and EPR (Electronic Patient Records) topic areas.
-Ishwinder expanded his knowledge of the events workstream and its future strategy by drafting a sprint plan spanning from August to December. This task required an understanding of our workstream's objectives and upcoming activities.
-Ishwinder also gained comms skills by developing targeted advertisements for our events, including FDSO Bulletin content and a Linkedin visual. These advertisements have increased event awareness and participation, contributing to the overall success of our initiatives.
+* Leveraged his skills in photoshop and utilised his creativity to create a series of banners for each workstream. He produced high-quality graphics, which has enhanced our visual communication and branding efforts.
+* Ishwinder developed his expertise in Google Slides. He effectively applied this skill to draft the events pipeline slide, showcasing his growing understanding of our events pipeline and EPR (Electronic Patient Records) topic areas.
+* Ishwinder expanded his knowledge of the events workstream and its future strategy by drafting a sprint plan spanning from August to December. This task required an understanding of our workstream's objectives and upcoming activities.
+* Ishwinder also gained comms skills by developing targeted advertisements for our events, including FDSO Bulletin content and a Linkedin visual. These advertisements have increased event awareness and participation, contributing to the overall success of our initiatives.
+* 
 Ishwinder has been very helpful, and I extend my best wishes for his continued success.
 
 ## Richard Boafo - Trainee Associate: 
