@@ -7,6 +7,14 @@ The one thing that I would like to caution Ish on is how laid back he appears at
 
 Ish was a real asset to our team for the time that he was with us, and his attention to detail and speed of picking up completely new ideas and running with them would be an asset to PwC in future. Stay in touch, Ish - I’d be more than happy to work with you again and am keen that you stay in the world of health consulting if that’s what you decide you want to do.
 
+## Claudia Zheng - Manager: 
+
+- Thorough Research: Ish demonstrated excellent research skills that significantly shaped the client proposal by uncovering in-depth and relevant information.
+- Effective Template Assessment: Successfully assessed various templates to create a structured and coherent layout that was both professional and easy to follow.
+- Quick Turnaround: Showed impressive responsiveness and efficiency in delivering tasks promptly, even in high-pressure situations with tight deadlines.
+- Strong Work Ethic: Exhibited excellent time management and a strong commitment to the project, contributing greatly to the proposal's success.
+- Valuable Contributions: Ish's dedication and ability to perform well under pressure were instrumental to the project's positive outcome.
+
 ## Erato Antoniou - Manager:
 Ish has been phenomenal in executing the tasks delegated to him and bringing new ideas to the table on the Frontline Digitisation Support Offer programme. Ish has executed tasks with great diligence and precision and great problem-solving skills, delivering high-quality work with the help and guidance of our work package leads. His ability to understand and follow through on complex instructions has been impressive given he was on the project for only about a month. His assistance to the programme but also to our work package leads has been invaluable, so I’d like to thank Ish for that.
 
